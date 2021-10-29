@@ -11,4 +11,3 @@ our school club, Access Denied, related project files will be uploaded here.
 \
 *Logo created by SL @ivyreject*
 \
-\
