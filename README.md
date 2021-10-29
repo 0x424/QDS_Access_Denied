@@ -3,9 +3,9 @@
 From documents to codes, all of my school club, Access Denied, related project files will be uploaded here.
 
 
+SP / ME / DS
+ACCESS-DENIED
+Since 2021
+![image](https://user-images.githubusercontent.com/37800371/139422492-52eec8f2-2a23-4535-a9a1-3c12a1af0855.png)
+Logo created by Samuel Sangyeob Lee
 
-ACCESS-DENIED 2021.
-
-![image](https://user-images.githubusercontent.com/37800371/139421927-e978e8fe-0f95-49c6-9784-0b281d6d7ff8.png)
-
-Logo created by Samuel Sangyeob Lee, Senior at Qingdao Daewon School
